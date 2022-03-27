@@ -1,2 +1,0 @@
-# receitas
-Receitas para economizar 
